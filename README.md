@@ -8,8 +8,8 @@ Hi guys my real name is Ariyan.
 Iam a minimal game developer.
 I can make some games and some programs
 
-Youtube :Neo Dev
-Discord :...
+Youtube :NO
+Discord :NO
 
 I currently working on some projects.
 
